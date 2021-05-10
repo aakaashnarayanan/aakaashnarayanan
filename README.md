@@ -1,5 +1,7 @@
 ## Hi, I am Aakaash 👋
-![image](https://user-images.githubusercontent.com/52366077/117656979-a7a98100-b1b6-11eb-833c-7d679c3dc640.png)
+![image](https://user-images.githubusercontent.com/52366077/117657381-1d155180-b1b7-11eb-871d-a1db6362e207.png)
+
+
 
 
 
